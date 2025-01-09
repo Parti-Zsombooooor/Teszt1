@@ -1,1 +1,1 @@
-# Szeretem a kutyákat
+# Szeretem a kutyákaty
